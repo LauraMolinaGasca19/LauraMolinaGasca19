@@ -7,7 +7,7 @@ Actualmente estoy aprendiendo sobre Redes Sociales
 
 Colaboro en Proyectos Academicos en la Academia de Comunicación en Educación Media Superior.
 
-Me pueden contactar por email lauramolina@innova.mx
+Me pueden contactar por email lauramolina@unninova.mx
 
 Me gusta la naturaleza, las charlas con los amigos.
 
